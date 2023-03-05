@@ -11,3 +11,4 @@ If my status isM4 4Ever that mean i sleep
 - 🔆Fun fact: The Hungarian word for "quotation marks" is "macskaköröm," which literally translates to "cat claws."
 - 📈Cryptocurrency
 
+𝙸 𝚑𝚘𝚙𝚎 𝚢𝚘𝚞𝚛 𝚍𝚊𝚢 𝚒𝚜 𝚊𝚕𝚠𝚊𝚢𝚜 𝙼𝚘𝚗𝚍𝚊𝚢 :𝚙
