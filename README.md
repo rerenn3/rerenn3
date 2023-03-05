@@ -13,4 +13,5 @@ If my status isM4 4Ever that mean i sleep
 
 𝙸 𝚑𝚘𝚙𝚎 𝚢𝚘𝚞𝚛 𝚍𝚊𝚢 𝚒𝚜 𝚊𝚕𝚠𝚊𝚢𝚜 𝙼𝚘𝚗𝚍𝚊𝚢 :𝚙
 
-https://user-images.githubusercontent.com/126551385/222625383-bbb974a0-b693-4053-9879-34f57460c0a9.gif
+![image](https://user-images.githubusercontent.com/126551830/222945833-2a8eba7e-6699-4def-96bf-1dcb9de04757.png)
+
